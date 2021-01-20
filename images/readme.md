@@ -1,1 +1,1 @@
-Folder with some inages)
+Folder with some images)
